@@ -1,5 +1,5 @@
 **# 💫 About Me:
-I'm currently working on getting a role in Cloud Engineering <br>I'm looking to collaborate on creative projects in AI <br>I'm looking to help with creating a vision around ideas  <br>I'm currently enjoying reading around AI and taking a Promt Engineering Course <br>Ask me about humanism in AI<br>Fun Fact, I enjoy visiting ancient heritage sites <br>
+I'm currently working on getting a role in Cloud Engineering <br>I'm looking to collaborate on creative projects in AI <br>I'm looking to help with creating a vision around ideas  <br>I'm currently enjoying reading around AI and taking a Prompt Engineering Course <br>Ask me about humanism in AI<br>Fun Fact, I enjoy visiting ancient heritage sites <br>
 
 
 ## 🌐 Socials:
